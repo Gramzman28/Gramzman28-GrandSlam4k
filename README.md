@@ -1,17 +1,6 @@
-https://github.com/GrandSlam4k
+https://github.com/Gramzman28
 
-"GrandSlam Recording Studio (GrandSlam4k) - Recording Studio" https://grandslamrecordingstudio.com GrandSlam4k 38MG+33 Youngstown, OH, USA
-GrandSlam4k
 
- 
-
-GrandSlam Recording Studio
-@GrandSlamRecordingStudio4k  · Music Production Studio
-GrandSlam Recording Studio
-March 11, 2018  · 
-Lee Gramz "All Gramz No Scamz" (Project In Video) On #MajorBlogSites Check Him Out Da Grind Is Real #YoungstownArtistes 
-Gramzman Promotion
-Youngstown Music Plug (GSRS)
 1. http://www.mysticsent.com/video-lee-gramz-all-gramz-no.../
 2. http://www.thegryndreport.com/video-lee-gramz-all-gramz.../
 3. http://www.hiphopandhype.com/video-lee-gramz-all-gramz.../
@@ -45,19 +34,6 @@ Youngstown Music Plug (GSRS)
 0 Comments
 ⁠
 
-Press Enter to post.
-OTHER POSTS
-GrandSlam Recording Studio
-May 8  · 
 
-0:00 / 0:38
-Gramzman Promotion
-April 23, 2020  · 
-Ray Fetti "Ramadan" Music Video Prod by @sjgotitt 
-#MindOfAHustlerVol2 #GSRS #WCM
-
-(YouTube Link)
-https://youtu.be/EEzrNiAw7Ng
-1 Comment
 ⁠
 
